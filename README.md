@@ -1,0 +1,1 @@
+# Dokumntacja-PDF-Zapper-Hunter-6050-i-nowsze.
